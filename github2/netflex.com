@@ -1,1 +1,1 @@
-The passionate about the future what you have a gain its matter
+The passionate about what you have gain so far isnt matter
